@@ -8,3 +8,5 @@ https://www.purdue.edu/campuses/indianapolis/student-movement-between-west-lafay
 https://www.purdue.edu/campuses/indianapolis/fact-sheet/
 https://www.purdue.edu/newsroom/2022/Q3/faq-for-purdue-faculty-staff-students-on-iu-purdue-announcement-for-vision-of-indianapolis-campus/
 https://www.purdue.edu/newsroom/2023/Q2/purdue-university-in-indianapolis-launching-purdues-first-comprehensive-urban-campus-and-forming-americas-hard-tech-corridor/
+https://www.purdue.edu/provost/about/staff/umulis-david.html#:~:text=David%20M.,Purdue%20West%20Lafayette%20flagship%20campus
+
